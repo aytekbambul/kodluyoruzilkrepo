@@ -28,3 +28,5 @@ istediğinizi tartışmak için bir konu açınız.
 
 </a>
 
+![İşimizin Başındayız](/aytek%20bambul%20patika.PNG)
+
